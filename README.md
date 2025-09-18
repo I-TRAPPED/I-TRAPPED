@@ -5,7 +5,7 @@
 
 ——　ᵔ　　Bisexual　![star](https://files.catbox.moe/dslk82.gif)
 
-┊　agender　　⌓⌓
-->![rose](https://files.catbox.moe/2kghbl.gif)　
+R, M & E ^⁠ω^ ┊　agender　　⌓⌓
+![rose](https://files.catbox.moe/2kghbl.gif)　
 
-:　　R, M & E ^⁠ω^ 　　𓈒　　❀　　｡　 ᵔ˳ᴗ ᴗ)<-
+:　　[straw](soon) , [ata](soon) , [pronouns](link) ^⁠ω^ 　　𓈒　　❀　　｡　 ᵔ˳ᴗ ᴗ)<-
