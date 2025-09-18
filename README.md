@@ -8,4 +8,4 @@
 R, M & E ^⁠ω^ ┊　agender　　⌓⌓
 ![rose](https://files.catbox.moe/2kghbl.gif)　
 
-:　　[straw](soon) , [ata](soon) , [pronouns](link) ^⁠ω^ 　　𓈒　　❀　　｡　 ᵔ˳ᴗ ᴗ)<-
+:　　[straw](soon) , [ata](https://ilithyiaaaa.atabook.org/) , [pronouns](https://en.pronouns.page/@arhul) ^⁠ω^ 　　𓈒　　❀　　｡　 ᵔ˳ᴗ ᴗ)<-
