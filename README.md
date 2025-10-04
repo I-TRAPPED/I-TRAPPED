@@ -5,7 +5,7 @@
 
 ——　ᵔ　　Bisexual　![star](https://files.catbox.moe/dslk82.gif)
 
-R, M & E ^⁠ω^ ┊　agender　　⌓⌓
+R, M & E ^⁠ω^ ┊　bi , pan　　⌓⌓
 ![rose](https://files.catbox.moe/2kghbl.gif)　
 
 :　　[straw](https://1trappedexe.straw.page) , [ata](https://ilithyiaaaa.atabook.org/) , [pronouns](https://en.pronouns.page/@arhul) ^⁠ω^ 　　𓈒　　❀　　｡　 ᵔ˳ᴗ ᴗ)<-
