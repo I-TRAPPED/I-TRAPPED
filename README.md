@@ -1,11 +1,8 @@
-![](https://files.catbox.moe/xwkh41.png)
+![](https://files.catbox.moe/6yfie6.jpg)
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀𐙚　⁺　　Arhul　.　　ꜜ　she 𐄇 any　![heart](https://files.catbox.moe/mphnts.gif)　𝟹
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀——　ᵔ　　me lovey snakes　![star](https://files.catbox.moe/l488ff.gif)
+⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀R, M & E ^⁠ω^ ┊　bi , pan　　⌓⌓
-![rose](https://files.catbox.moe/21rpcf.gif)　
 
-⠀⠀⠀⠀⠀⠀⠀^⁠ω^ 　　𓈒　⠀:　　[straw](https://1trappedexe.straw.page) , [ata](https://ilithyiaaaa.atabook.org/) , [pronouns](https://en.pronouns.page/@arhul)　　❀　　｡　 ᵔ˳ᴗ ᴗ)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𓈒　⠀:　　' ' I trusted you. ' '　｡　 ᵔ˳ᴗ ᴗ)
