@@ -19,7 +19,7 @@
 
 ㅤ
 
- ::ㅤㅤㅤㅤ꒰ㅤㅤ![](https://files.catbox.moe/o9jox4.gif)ㅤ[ata](https://arhul.atabook.org/)  &  [straw](https://evouishere.straw.page) (´▽`ʃ♡ƪ)ㅤ![](https://files.catbox.moe/xnub8x.gif)ㅤ﹒₊˚𓂃 ★﹒
+ ::ㅤㅤㅤㅤ꒰ㅤㅤ![]RMK'IN PROFIKE!!ㅤ﹒₊˚𓂃 ★﹒
 
 ㅤ
 
