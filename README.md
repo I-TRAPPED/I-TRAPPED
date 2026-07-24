@@ -1,30 +1,24 @@
 
-![](https://files.catbox.moe/3c9hcg.png)
+![](https://files.catbox.moe/r55ko2.png)
+![](https://files.catbox.moe/er1nom.png)
+![](https://files.catbox.moe/e4o3bb.png)
 
+ㅤ     ㅤㅤㅤ     ![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)
 
+ ![](https://files.catbox.moe/uc0mns.gif)ㅤㅤ( ⸝⸝´꒳`⸝⸝)ㅤㅤ*not so online! int w/ atabook ^_^*
 
+ㅤㅤ
 
-ㅤ
-
-
-  
-   
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ''  𝙖𝙣𝙙 𝙎𝙥𝙤𝙣𝙜𝙨 𝙞𝙨 𝙟𝙪𝙨𝙩 𝙡𝙞𝙠𝙚. . . 𝙗𝙖𝙙.  ''
+ ::ㅤㅤㅤㅤ꒰ㅤㅤatabook and strawpage soon !ㅤ﹒₊˚![](https://files.catbox.moe/gs7q2y.gif)﹒
 
 ㅤ
 
- ![](https://files.catbox.moe/uv080z.gif)ㅤㅤ( ⸝⸝´꒳`⸝⸝)ㅤㅤ*not so online! int w/ atabook ^_^*
+ㅤㅤ⟡⠀⠀![](https://files.catbox.moe/uc0mns.gif)⠀⠀***Multishipper & Multifandom*** (?)⠀⠀⸜(｡˃ ᵕ ˂ )⸝⠀⠀MCYT , FORSAKEN/ROBLOX , PJSK *!!* ㅤ ![](https://files.catbox.moe/12metj.gif)
+
 
 ㅤ
-
- ::ㅤㅤㅤㅤ꒰ㅤㅤ![]RMK'IN PROFIKE!!ㅤ﹒₊˚𓂃 ★﹒
-
 ㅤ
 
-ㅤㅤ⟡⠀⠀![](https://files.catbox.moe/e4feco.gif)⠀⠀***Multishipper & Multifandom*** (?)⠀⠀⸜(｡˃ ᵕ ˂ )⸝⠀⠀MCYT , GI, HSR , CRK *!!*
-
-
-
-
+![](https://files.catbox.moe/037ulf.gif)
+ㅤ
+![](https://files.catbox.moe/8e3ygt.gif)
