@@ -9,7 +9,7 @@
 
 ㅤㅤ
 
- ::ㅤㅤㅤㅤ꒰ㅤㅤatabook and strawpage soon !ㅤ﹒₊˚![](https://files.catbox.moe/gs7q2y.gif)﹒
+ ::ㅤㅤㅤㅤ꒰ㅤㅤatabook soon & [strawpage](https://arhuls.straw.page) !ㅤ﹒₊˚![](https://files.catbox.moe/gs7q2y.gif)﹒
 
 ㅤ
 
