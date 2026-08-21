@@ -5,7 +5,7 @@
 
 ㅤ     ㅤㅤㅤ     ![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)
 
- ![](https://files.catbox.moe/uc0mns.gif)ㅤㅤ( ⸝⸝´꒳`⸝⸝)ㅤㅤ*WIP page*
+ㅤ ![](https://files.catbox.moe/uc0mns.gif)ㅤㅤ( ⸝⸝´꒳`⸝⸝)ㅤㅤ*WIP page*
 
 ㅤㅤ
 
@@ -13,7 +13,7 @@
 
 ㅤ
 
-ㅤㅤ⟡⠀⠀![](https://files.catbox.moe/uc0mns.gif)⠀⠀***Multishipper & Multifandom*** (?)⠀⠀⸜(｡˃ ᵕ ˂ )⸝⠀⠀MCYT , FORSAKEN/ROBLOX , PJSK *!!* ㅤ ![](https://files.catbox.moe/12metj.gif)
+ㅤㅤㅤ⟡⠀⠀![](https://files.catbox.moe/uc0mns.gif)⠀⠀***Multishipper & Multifandom*** (?)⠀⠀⸜(｡˃ ᵕ ˂ )⸝⠀⠀MCYT , FORSAKEN/ROBLOX , PJSK *!!* ㅤ ![](https://files.catbox.moe/12metj.gif)
 
 
 ㅤ
