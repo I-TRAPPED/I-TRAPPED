@@ -5,7 +5,7 @@
 
 ㅤ     ㅤㅤㅤ     ![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)![](https://files.catbox.moe/m4tjlp.gif)
 
-ㅤ ![](https://files.catbox.moe/uc0mns.gif)ㅤㅤ( ⸝⸝´꒳`⸝⸝)ㅤㅤ*WIP page*
+ㅤ ![](https://files.catbox.moe/uc0mns.gif)ㅤㅤ( ⸝⸝´꒳`⸝⸝)ㅤㅤ*Hello there! I dont bite btw. . .*
 
 ㅤㅤ
 
